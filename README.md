@@ -66,7 +66,7 @@
 
 
 
-
+<p><img align="left" src="https://github-readme-stats.vercel.app/api/top-langs?username=Alejandro-A-Rivas-Quevedo-H&show_icons=true&locale=en&layout=compact" alt="Alejandro-A-Rivas-Quevedo-H" /></p>
 
 <p>&nbsp;<img align="center" src="https://github-readme-stats.vercel.app/api?username=Alejandro-A-Rivas-Quevedo-H&show_icons=true&locale=en" alt="Alejandro-A-Rivas-Quevedo-H" /></p>
 
