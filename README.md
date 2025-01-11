@@ -13,6 +13,10 @@
 
 - 📫 How to reach me **00314143alex@gmail.com**
 
+- 💬 My CV in English here https://drive.google.com/file/d/1y0NIJAWBq4wjhqbCu9_Jb3NN2MacDZT0/view?usp=sharing
+
+- 💬 My CV and recommendation letters in Spanish here https://drive.google.com/file/d/170BwB55v2xxDrCOvFz6H5LSTMxd7QG5R/view
+
 - ⚡ Fan the legend of zelda
 
 
