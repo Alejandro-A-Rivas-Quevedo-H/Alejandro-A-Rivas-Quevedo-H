@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **00314143alex@gmail.com**
 
-- 💬 My CV in English here https://drive.google.com/file/d/1y0NIJAWBq4wjhqbCu9_Jb3NN2MacDZT0/view?usp=sharing
+- 💬 My CV in English here https://drive.google.com/file/d/1GMFHqUnHY4jFGRLzhomF4JX4ViyVfn7h/view?usp=sharing
 
 - 💬 My CV in Spanish here https://drive.google.com/file/d/18rEc4i4UITIY3X75UVIsCduE7_uARehs/view?usp=sharing
 
