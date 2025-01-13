@@ -15,7 +15,7 @@
 
 - 💬 My CV in English here https://drive.google.com/file/d/1y0NIJAWBq4wjhqbCu9_Jb3NN2MacDZT0/view?usp=sharing
 
-- 💬 My CV and recommendation letters in Spanish here https://drive.google.com/file/d/170BwB55v2xxDrCOvFz6H5LSTMxd7QG5R/view
+- 💬 My CV in Spanish here https://drive.google.com/file/d/18rEc4i4UITIY3X75UVIsCduE7_uARehs/view?usp=sharing
 
 - ⚡ Fan the legend of zelda
 
